@@ -8,7 +8,7 @@ Saya memiliki pengalaman program MBKM bootcamp di **Dicoding Indonesia** khususn
 
 Saya lulus dari program tersebut dengan beberapa Sertifikat dari program MBKM di Dicoding indonesia.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muhammad-fikriansyah-junaryana-putra-b6b735317/)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muhammad-fikriansyah-junaryana-putra-b6b735317/) ku ya.
 
 
 
